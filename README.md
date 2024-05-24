@@ -1,1 +1,0 @@
-# test-tim-teknologi-gelobal
